@@ -4,6 +4,6 @@ Free-Dump-iOS-Standoff2
 
 Dump only iOS
 
-discord.gg/PabloTap
+discord.gg/FCdJSeEnEu
 
 t.me/Qehhre
